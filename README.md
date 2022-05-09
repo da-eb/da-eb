@@ -1,8 +1,8 @@
 ### Hi there 👋
 I'm David Ebube
 
-- 🔭 I’m currently a work in progress
-- 🌱 I’m currently learning a lot at my pace
+- 🔭 I’m currently exploring earth
+- 🌱 Learning
 <!-- - 👯 
 - 🤔  -->
 <!-- - 💬 Ask me about anything -->
