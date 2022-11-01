@@ -3,7 +3,7 @@ I'm David Ebube
 
 - 🔭 I’m currently exploring the earth a step at a time
 - 🌱 Learning everything I can in various fields..
-- I'm looking to collaborate on projects that can help humanity, no matter how little it might seem 👯 
+- I'm looking to collaborate on projects that can help humanity...
 - 🤔 I need help with a lot...
 - 💬 Ask me about anything
 - 📫 How to reach me: davidlaebube@gmail.com
