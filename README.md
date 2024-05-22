@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm David Ebube
+I'm Daleth
 
 - 🔭 I’m currently exploring the earth a step at a time
 - 🌱 Learning everything I can in various fields..
